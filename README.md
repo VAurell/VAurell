@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @VAurell
+- 👀 I’m interested in Pawn Developing and HTML
+- 🌱 I’m currently learning HTML, and i learned ab 90% Pawn
+- 💞️ I’m looking to collaborate on Gaming Community based on SAMP Servers
+- 📫 How to reach me on discord : Jupanuu#6666
+- I'm from Roumania.
